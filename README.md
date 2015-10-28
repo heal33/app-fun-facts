@@ -2,4 +2,4 @@
 
 Android app
 
-10 fun facts about birds.
+Fun aviation facts :)
